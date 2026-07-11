@@ -1,4 +1,1 @@
-I LIKE TOJI X SUKUNA I LIKE TOJIKUNA I LIKE SUKUTOJI AND I MAKE IT MY WHOLE PERSONALITY!!!!!
-![](https://media1.tenor.com/m/bSscA4mQ8mMAAAAd/how-i-keep-the-rent-low-in-my-neighbourhood-meme.gif)
-
-HIDE ME AND DONT TALK TO ME IF U DONT LIKE TOJIKUNA I AM INSUFFERABLE ABOUT IT
+i'll make dis look good one day i think
