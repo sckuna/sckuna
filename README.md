@@ -12,5 +12,5 @@
 
 <p align="center"> ──── ୨୧ ────  </p>
 ⠀
-<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://github.com/toewrestlergod3000"> main </a> ᲼ ᲼ <a href= "https://rentry.co/tcji"> rentry </a> ᲼ ᲼ <a href= "https://pin.it/7Aigfn2YG"> pfp art credit </a> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://github.com/toewrestlergod3000"> main </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> ᲼ ᲼ <a href= "https://pin.it/7Aigfn2YG"> pfp art credit </a> </p>
 </div>
