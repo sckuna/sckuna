@@ -6,5 +6,5 @@
  
 <p align="center"> off tab usually, w2int </p>
  
-<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> straw </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> straw </a> ᲼ ᲼ <a href= "https://rentry.co/yujikuna"> rentry </a> </p>
 </div>
