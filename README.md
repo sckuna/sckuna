@@ -1,6 +1,6 @@
- <p align="center"> ⛩️⛓️  </p>
-<p align="center"> C+H is ok  </p>
-<p align="center"> off tab usually, w2int </p>
- 
-<p align="center"> <a href= "https://arsenal.atabook.org"> ata </a> ᲼ ᲼ <a href= "https://rentry.co/sukuna-"> rentry </a> </p>
+<p align="center"> art by my friend vic thx vic :) </p>
+<div align="center">
+    <img src="https://files.catbox.moe/xeied6.png"width="490"/>
 </div>
+<p align="center"> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/">atabook</a>  ᲼ ᲼ <a href= "https://rentry.co/sckuna">rentry</a>  ᲼ ᲼   ᲼ ᲼   ᲼ ᲼   ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc">last.fm</a>  ᲼ ᲼ <a href= "https://github.com/toewrestlergod3000">main</a>  ᲼ ✦</p>
